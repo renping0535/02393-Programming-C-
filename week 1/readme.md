@@ -1,1 +1,1 @@
-solution for exerise in week 2
+solution and exerise in week 2
